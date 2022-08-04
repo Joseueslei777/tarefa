@@ -1,6 +1,3 @@
-# jijoi
-## hiuhhu
-### hiuhj
 - Eu sou o Jose Ueslei🧑
 - Tenho 16 anos🐱‍👤
 - Meu signo é aquario♒
